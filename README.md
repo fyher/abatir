@@ -1,3 +1,3 @@
 # abatir
 
-[terrain a batir](http://www.abatir.net)
+[terrain à vendre](http://www.abatir.net)
